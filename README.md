@@ -1,3 +1,3 @@
 # personality-quiz
 
-Kanyesucks
+Kanye sucks
